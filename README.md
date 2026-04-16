@@ -2,7 +2,7 @@
 ![](https://i.postimg.cc/mgSQXxLw/Untitled98-20260416154418.png)
 cuddles ok!　　i'm mostly lurking!　　please **whisper** to get my attention!
 
-- [ ] 　liwei skin
+- [x] 　liwei skin
 - [ ] 　yesod skin
 - [ ] 　angela skin
 - [ ] 　nugget oc skin
