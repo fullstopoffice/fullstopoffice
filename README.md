@@ -2,10 +2,7 @@
 ![](https://i.postimg.cc/mgSQXxLw/Untitled98-20260416154418.png)
 cuddles ok!　　i'm mostly lurking!　　please **whisper** to get my attention!
 
-- [x] 　liwei skin
-- [x] 　yesod skin
-- [x] 　angela skin
-- [x] 　nugget oc skin
+- [] 　collect all halloween toys
 
-[rentry](https://rentry.co/godsofcity)　　✚　　[altersping](https://alterspring.org/@host)　　✚　　[atabook](https://lor.atabook.org/)
+[rentry](https://rentry.co/godsofcity)　　✚　　[atabook](https://lor.atabook.org/)
 ![](https://i.postimg.cc/YCx1ncr6/Untitled98-20260416154423.png)
